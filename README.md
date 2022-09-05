@@ -12,7 +12,7 @@
 
 
 
-Fun fact:
+## Fun fact:
 
 
 🌟- ⚡ I recently started reading books do share your favourite one with me.
@@ -21,6 +21,6 @@ Fun fact:
 🌟-🎶  I like listening songs all the time but don't ask for my playlist because it never existed...my genre changes by my mood.
 
 
-- 📫 How to Connect me:.....
+
 
 
