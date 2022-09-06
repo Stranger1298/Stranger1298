@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **amanraj89969@gmail.com**
 
-- ⚡ Fun fact **I listen songs all the time but I don't have my own playlist yet.t**
+- ⚡ Fun fact **I listen songs all the time but I don't have my own playlist yet.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
